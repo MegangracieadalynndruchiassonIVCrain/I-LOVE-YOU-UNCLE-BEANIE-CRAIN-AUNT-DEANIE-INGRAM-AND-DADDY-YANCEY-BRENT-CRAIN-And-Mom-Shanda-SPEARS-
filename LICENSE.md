@@ -1,0 +1,1 @@
+This is the Love Shack God Fearing Anybody licensce no matter if u broke poor a witch a warlock a lawyer a Nobody it's yours. , your wonted capable and able let's lift each other up and remind a each other of the right in us and of the light within love everyone. Megan b Crain 11/26/2024.   / 3yrs ill find yail again)
